@@ -29,6 +29,6 @@ The EmbraceWell project welcomes developers, designers, and mental health advoca
 - Yash Mehta: yash.dlw@gmail.com
 - Nikunj Saini: saininikunj@gmail.com
 - Saksham Kumar Dahiya: Sakshamdahiya0325@gmail.com
-- Sanjay Singh: sanjay.singh@gmail.com
+- Sanjay Singh: samantsanjay100@gmail.com
 
 Let's embrace well-being together! 🌟
